@@ -1,8 +1,12 @@
-# Filosofia-A-Arte-De-Ter-Razao
+# Filosofia - A Arte De Ter Razao
 
 Projeto para debatermos a dialética.
 
+
+
 ## A Arte de ter Razão: resumo dos 38 estratagemas de Schopenhauer
+
+> Também conhecido como o manual da treta!
 
 Em “A Arte de Ter Razão”, Schopenhauer traçou 38 estratagemas para vencer qualquer discussão, mesmo quando se está errado. Nelas descreve estratégias para defender suas crenças, ridicularizar seus rivais e manipular as pessoas. São técnicas que têm efeito de curto prazo, uma vez que você consegue o seu objetivo no momento (convencer alguém a fazer/aceitar algo que não deseja) mas algum tempo depois, a vitória pode se voltar contra nós, quando a pessoa descobrir que foi manipulada.
 Achei na net este ótimo resumo dos 38 estratagemas. Conheça-os para se proteger daqueles que fazem uso deles.
