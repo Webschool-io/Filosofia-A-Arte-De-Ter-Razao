@@ -13,11 +13,11 @@ Achei na net este ótimo resumo dos 38 estratagemas. Conheça-os para se protege
 
 > Nº 1. Leve a proposição do seu oponente além dos seus limites naturais; exagere-a. Quanto mais geral a declaração do seu oponente se torna, mais objeções você pode encontrar contra ela. Quanto mais restritas as suas próprias proposições permanecem, mais fáceis elas são de defender.
 
-Nº 2. Use significados diferentes das palavras do seu oponente para refutar a argumentação dele. Exemplo: a pessoa A diz: “Você não entende os mistérios da filosofia de Kant”. A pessoa B replica: “Ah, se é de mistérios que estamos falando, não tenho como participar dessa conversa”.
+> Nº 2. Use significados diferentes das palavras do seu oponente para refutar a argumentação dele. Exemplo: a pessoa A diz: “Você não entende os mistérios da filosofia de Kant”. A pessoa B replica: “Ah, se é de mistérios que estamos falando, não tenho como participar dessa conversa”.
 
-Nº 3. Ignore a proposição do seu oponente, destinada a referir-se a alguma coisa em particular. Ao invés disso, compreenda-a num sentido muito diverso, e em seguida refute-a. Ataque algo diferente do que foi dito.
+> Nº 3. Ignore a proposição do seu oponente, destinada a referir-se a alguma coisa em particular. Ao invés disso, compreenda-a num sentido muito diverso, e em seguida refute-a. Ataque algo diferente do que foi dito.
 
-Nº 4. Oculte a sua conclusão do seu oponente até o último momento. Semeie suas premissas aqui e ali durante a conversa. Faça com que o seu oponente concorde com elas em nenhuma ordem definida. Por essa rota oblíqua você oculta o seu objetivo até que tenha obtido do oponente todas as admissões necessárias para atingir o seu objetivo.
+> Nº 4. Oculte a sua conclusão do seu oponente até o último momento. Semeie suas premissas aqui e ali durante a conversa. Faça com que o seu oponente concorde com elas em nenhuma ordem definida. Por essa rota oblíqua você oculta o seu objetivo até que tenha obtido do oponente todas as admissões necessárias para atingir o seu objetivo.
 
 > Nº 5. Use as crenças do seu oponente contra ele. Se o seu oponente recusa-se a aceitar as suas premissas, use as próprias premissas dele em seu favor. Por exemplo, se o seu oponente é membro de uma organização ou seita religiosa a que você não pertence, você pode empregar as opiniões declaradas desse grupo contra o oponente.
 
